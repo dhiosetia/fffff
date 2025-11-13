@@ -1,1 +1,1 @@
-![image](blob:https://web.whatsapp.com/530e07dd-d0de-4fd2-8cb9-00f476d64ff3)
+![image](file:///C:/Users/ACER/Downloads/WhatsApp%20Image%202025-11-13%20at%2018.10.50.jpeg)
